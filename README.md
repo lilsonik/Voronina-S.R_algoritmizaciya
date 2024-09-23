@@ -1,3 +1,3 @@
 # sonya.v.r._algoritmizaciya
-https://docs.google.com/document/d/1zX1gDr_oOMTYMYdbFGcYAAMFjriHLN4pLUboYNOFiC4/edit?usp=sharing
+https://drive.google.com/drive/folders/1nYjW7jN2GuM8fmxOXQCS26gLywjrEiju?usp=drive_link
 **ghjghg**
